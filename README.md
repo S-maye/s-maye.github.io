@@ -1,1 +1,0 @@
-# s-maye.github.io
